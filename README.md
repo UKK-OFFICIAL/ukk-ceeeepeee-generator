@@ -1,2 +1,1 @@
-# ukk-ceeeepeee-generator
-YES ITS FROM UKK. YUGOYURI. 2525. THUR KROWN. YUIAN FEET. HEIL!!!!!
+this works by using an exploit in the fbi mainframe, from chatGPT profesional UKK ai.
